@@ -1,4 +1,4 @@
-# DEEP WORK(강력한 몰입, 최고의 성과) - 제임스 클리어
+# DEEP WORK(강력한 몰입, 최고의 성과) - 
 
 <img width="377" alt="스크린샷 2023-03-22 오후 6 44 50" src="https://user-images.githubusercontent.com/121492344/227073721-c7405f6f-a2ce-4b6b-813f-174f3f85a684.png">
 이미지출처 : 예스24 
